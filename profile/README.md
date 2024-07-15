@@ -1,5 +1,5 @@
 
-<img src="https://github.com/Noca-Studios/.github/assets/92652800/6436f6a8-08ce-4412-a1e5-b144a917c4b2" width=600 />
+<img src="https://github.com/user-attachments/assets/ae52a9ae-6983-42aa-ab99-5862ddd3ca1a" width=700 />
 
 
 ## Who are we?
